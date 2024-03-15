@@ -8,4 +8,6 @@
 
 ♰⠀*interest* [*list*](https://rentry.co/zappyflakes/)
 
+♰⠀*status* [*meanings*](https://rentry.co/realimportant/)
+
 ♰⠀*discord is 22n1 !!*
