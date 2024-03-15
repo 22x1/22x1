@@ -2,7 +2,7 @@
 
 ♰⠀*read rentry before interacting / befriending*
 
-♰⠀*c + h okay even if stranger , whisper before hand ( no perm needed !! )*
+♰⠀*c + h okay even if stranger , whisper beforehand ( no perm needed !! )*
 
 ♰⠀*whisper to interact always , i ' m alttabbed all the time*
 
