@@ -10,4 +10,6 @@
 
 ♰⠀*status* [*meanings*](https://rentry.co/realimportant/)
 
-♰⠀*discord is 22n1 !!*
+♰⠀*discord is 22n1*
+
+♰⠀*art credits ; totallycherri & medkited*
