@@ -8,8 +8,9 @@
 
 ♰⠀*interest* [*list*](https://rentry.co/zappyflakes/)
 
-♰⠀*status* [*meanings*](https://rentry.co/realimportant/)
+♰⠀*not op but read this when you [can](https://rentry.co/callout-awareness)*
 
+♰⠀*status* [*meanings*](https://rentry.co/realimportant/)
 ⠀
 
 ♡⠀*discord is 22n1 , tell me if i ' m following someone bad !*
