@@ -2,7 +2,7 @@
 
 ⠀
 
-♰⠀*PLEASE sign my [guestbook!!](https://2201.123guestbook.com) ( guestbook is DEAD so i wont let u sign rn )*
+♰⠀*PLEASE sign my [guestbook!!](https://2201.123guestbook.com) ( guestbook is DEAD so it wont let u sign rn )*
 
 ♰⠀*ponytown specifics [info](https://rentry.co/macaroninbeer)*
 
