@@ -2,7 +2,7 @@
 
 ⠀
 
-♰⠀*PLEASE sign my [guestbook!!](https://2201.123guestbook.com) (currently ip blocked cant answer messages..)*
+♰⠀*PLEASE sign my [guestbook!!](https://2201.123guestbook.com) ( currently ip blocked cant answer messages .. )*
 
 ♰⠀*ponytown specifics [info](https://rentry.co/macaroninbeer)*
 
