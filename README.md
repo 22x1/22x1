@@ -4,9 +4,9 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀helo. my nick is 2x and i follow a buncharoos
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀helo. my nick is 2x and i follow a buncharoos
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀ i may or may not be a little peculiar creature
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ i may or may not be a little peculiar creature
 
 ⠀
 
